@@ -37,4 +37,3 @@
 
 ---
 
-Find me on GitHub, [LinkedIn](https://www.linkedin.com/in/iamharisahsan/), or email: harismirza3456@gmail.com.
